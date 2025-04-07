@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @evandrofelps
 - 👀 I’m interested in Service Now decoding
 - 🌱 I’m currently learning Software Engineering
-- 💞️ I’m looking to collaborate on various topics
+- 💞️ I’m looking to collaborate in various topics
 - 📫 Contact me via LinkedIn - www.linkedin.com/in/evandrofelipe
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I'm very shy
